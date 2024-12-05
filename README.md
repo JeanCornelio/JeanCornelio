@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 Im currently working on my own projects ✍️<br>Im currently learning web development 💻<br>Im looking for team working ⭐<br>tell me about web design - usability 💬
 
 
